@@ -8,4 +8,4 @@ Siempre estoy abierta a colaboraciones y nuevas oportunidades, así que no dudes
 
 Datos de contacto: 
 barbararuiz063@gmail.com
-https://www.linkedin.com/in/barbararuiz6/
+
